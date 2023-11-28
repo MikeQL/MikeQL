@@ -11,3 +11,4 @@ I am an Mechatronics Engineer. I am focused on achieving success in my career th
 - 📫 How to reach me: by e-mail: mwquintana@gmail.com or by phone +593960134111 I'm linkedIn: https://www.linkedin.com/in/michael-quintana-lopez/
 - ⚡ Fun fact: I'm somewhat obsessed with continuing to improve my skills. I really like heavy humor and I really like working as a team.
 
+![alt text](./img/1700062752009.jfif)
